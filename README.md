@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kaidzualex
-- 👀 I’m interested in programming, AI, games, and art
+- 👀 I’m interested in programming, AI, games, basketball and art
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on studying and small projects
 - 📫 How to reach me: telegram @kaidzualex
